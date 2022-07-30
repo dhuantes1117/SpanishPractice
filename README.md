@@ -7,4 +7,4 @@
 > Me dije "estas loco."
 
 > Pero no estaba
-> - **Freeman Dyson**
+- **Freeman Dyson**
